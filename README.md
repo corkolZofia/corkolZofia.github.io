@@ -1,3 +1,8 @@
-## This page is under construction
+## General information
 
-In the meantime you can visit my [LinkedIn profile](https://www.linkedin.com/in/zofiagrabowiecka/).
+I invite you to visit my [LinkedIn profile](https://www.linkedin.com/in/zofiagrabowiecka/).
+
+
+## Personal Projects
+
+This page is under construction
